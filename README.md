@@ -1,4 +1,4 @@
- Interests: Dandy's World, Dandy's Block (au), Crk, Crob, Gacha club/life n Paswg
+ Interests: Dandy's World, Dandy's Block (au), Crk, Crob, Sherlock Yack,Gacha club/life n Paswg
  
  Pt stuff: Most of my skins have int or c+h on them, in which feel free to do just that:D (unless i have the busy icon in which w2i😀) 
  
