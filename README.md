@@ -4,7 +4,7 @@
  
  Pt stuff: 
 
- 🗨️❔: int + c+h!!
+ 🗨️❔: int + c+h!! (unless my name says w2i)
 
  🌙/⛔: c+h + w2i (and if my pony obv says that im afk/offtab) 
  (i might forget to change icons soo sorry for the confusion)
