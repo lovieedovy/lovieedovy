@@ -1,14 +1,8 @@
- Interests: Dandy's World, Dandy's Block (au), Crk, Crob, Sherlock Yack, Gacha club/life n Paswg
+· · ─ ·ʚɞ· ─ · ·
 
- Stuff i like to do😀: Drawing, making papercrafts/dolls, reading, talking to my friends, playing my fave games, playing oc makers (Im addicted send help), and making ocs in general
- 
- Pt stuff: 
+Hiyaa !! c+h is always welcome unless im w friends
 
- 🗨️❔: int + c+h!! (unless my name says w2i)
 
- 🌙/⛔: c+h + w2i (and if my pony obv says that im afk/offtab) 
- (i might forget to change icons soo sorry for the confusion)
- 
- 
+Hello @ilostmyYchromosome & all of my other friends who don't have a github:DD
 
- That's all ty!✧₊⁺ (ps: dis is still a wip so it's pretty blank, expect changes every now n then)
+More info is on my strawpage yeyeyeye
