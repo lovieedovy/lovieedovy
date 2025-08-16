@@ -1,6 +1,6 @@
 · · ─ ·ʚɞ· ─ · ·
 
-Hiyaa !! c+h is always welcome unless im w friends
+Hiyaa !! c+h is always welcome unless im w friends (then plz ask then:p)
 
 W2i is also prefered too !
 
