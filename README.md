@@ -4,4 +4,4 @@ Hiyaa !! c+h is always welcome unless im w friends (then plz ask then:p)
 
 W2i is also prefered too !
 
-More info is on my strawpage yeyeyeye
+More info is on my rentry yeyeyeye
